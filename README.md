@@ -3,7 +3,7 @@
 I'm graphic designer and front-end web developer curently working at [connect724.at](https://connect724.at).
 On side sometimes do freelancing or study projects. 
 
-📫 You can reach me here: julius.zlioba@gmail.com or writeme@juliuszlioba.com
+📫 You can reach me here: writeme@juliuszlioba.com
 
 Also my website: [juliuszlioba.com](https://juliuszlioba.com)
 
